@@ -8,3 +8,9 @@ Adres: Domeinstraat 61, 3010 Leuven, Vlaams-Brabant
 GPS: N 50.89878, E 4.72002        
 Drankje bij Het Moorineken aan de Grote Markt.    
 Mosselen en ossetong bij Troubadour aan de Munstraat. Nat pak voor Willy omdat water en wijn omvielen.    
+
+*Dag 2*
+Vertrek om 10.30 uur.
+Aankomst Dourdan om 16.30 uur.
+Camping Les Petits Près
+Adres: 11 avenue Pierre-Mendès-France - 91410 Dourdan
